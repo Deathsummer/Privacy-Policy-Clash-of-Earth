@@ -125,8 +125,8 @@ Contacting Us
 
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
-Chemical Stuidos
-Rua Santo Pinto
+Chemical Studios
+Rua Santo Pinto, 35, 405D
 Serra, ES 29176011
 Brasil
 chemical_studios@hotmail.com
